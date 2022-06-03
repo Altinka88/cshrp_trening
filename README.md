@@ -1,0 +1,1 @@
+# cshrp_trening
